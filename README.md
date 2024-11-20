@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, Code,Youtube 
 - 🌱 I’m currently learning how to use AI in Code and Programmation
 - 📫 How to reach me : discord : 13b521365214f2d675ec4 ( not termed yet )
-- 😄 Pronouns: he/he's
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I still dont know my Left and Right
 
 <!---
