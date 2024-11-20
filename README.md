@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @13bweb
-- 👀 I’m interested in ...
+- 👀 I’m interested in AI, Code,Youtube 
 - 🌱 I’m currently learning how to use AI in Code and Programmation
 - 📫 How to reach me : discord : 13b521365214f2d675ec4 ( not termed yet )
 - 😄 Pronouns: he/he's
